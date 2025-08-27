@@ -41,4 +41,4 @@ We may update this Privacy Policy from time to time. We will notify you of any c
 
 ## 7. Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at [Your-Email-Address@example.com].
+If you have any questions about this Privacy Policy, please contact us at rajibsarwar.apple@gmail.com.
